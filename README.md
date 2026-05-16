@@ -10,7 +10,7 @@ https://drive.google.com/drive/folders/179OApcX9k_8GBFM3Suea1_SEwTpyReRW?usp=sha
 
 ---
 
-Kabbya Sir’s Class Recording (After Midterm)
+Kabbya Sir’s Class Recording
 https://www.youtube.com/watch?v=g9HvFAGqy3M&list=PLib4rFadvfrckeiUjBjYWnxtyUmW5-X8r
 
 ---
